@@ -13,3 +13,6 @@ alurastartestudante@email.com
 
 
 
+
+
+![](https://1.bp.blogspot.com/--o_TmvpIytg/U_IEJU6FseI/AAAAAAAAKrc/Fk9_U_2NOTE/s1600/Charmander%2B1.gif)
